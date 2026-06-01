@@ -1,0 +1,1 @@
+# SNWY public assets
